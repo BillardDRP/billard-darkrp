@@ -1,10 +1,16 @@
-Hey @SirFrancisBillard
+Okay dude:
 
-I had an idea for billardRP
+i had another idea that idek if it's possible. I need you to make an AppleScript with no errors... XD jk.
+noh but srsly would it be possible that when we get more than 1 server that we could make it so they all run the same map but on the first server that u play on is ur "home" server and on all other official servers you are "away" ie: on 1 server u might own a room but on another server you dont.
 
-Better government:
-If a mayor has imposed/enforced many very strict rules over the citizens, then groups of citizens can form a rebellion in an attemp to overthrow the government, however if they are caught they will be jailed. Guards and other government members can also offer bribes to citizens that they believe may be a part of the mob. These citizens can either lie or snitch (if they actually are part of it) these bribes can be money, safety, jobs, or weapons. 
+idk
+thx tho
 
-Thanks!
-
-@808dkaneohe
+gotta 
+get 
+those 
+line 
+addition 
+points
+XD
+lel
